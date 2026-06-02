@@ -1,4 +1,4 @@
-# 
+# Melhor Glary Utilities extensões para Mac OS | Instantâneo Glary Utilities extensões para PC Windows. Com remocao de arquivos temporarios e gerenciamento de inicializacao automatica — otimizado para máximo desempenho em cada plataforma.
 
 
 
